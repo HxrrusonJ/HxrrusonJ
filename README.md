@@ -1,3 +1,2 @@
 - 👋 Hi, I’m @HxrrusonJ
-- 👀 I am a FiveM Server Owner of UKRP (AKA)UnitedKingdomRP
 ---> 
